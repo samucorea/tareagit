@@ -1,4 +1,4 @@
 
 # La primavera
 
-## Me encanta la primavera porque es linda.
+Me encanta la primavera porque es linda.
