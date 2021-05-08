@@ -1,15 +1,6 @@
 **5 de la tarde**
 *Federico Garcia Lorca*
 
-A las cinco de la tarde.
-Eran las cinco en punto de la tarde.
-Un niño trajo la blanca sábana
-a las cinco de la tarde.
-Una espuerta de cal ya prevenida
-a las cinco de la tarde.
-Lo demás era muerte y sólo muerte
-a las cinco de la tarde.
-
 El viento se llevó los algodones
 a las cinco de la tarde.
 Y el óxido sembró cristal y níquel
